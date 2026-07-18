@@ -1,3 +1,7 @@
+# ITS A STACK FOR YOU
+
+> Zero information. Maximum confidence. The original nugget stays. 😂
+
 # 🧬 THE PURPLE STACK
 
 **Human OS v5.0 — System Architecture for the Mad King**
